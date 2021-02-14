@@ -1,7 +1,18 @@
 # Readme
 
 ## 1. Einführende Worte
-Vor ca. einem Jahr wurde ich von einer bezaubernden jungen Frau gefragt, was ich will.
+Vor ca. einem Jahr sagte eine bezaubernde junge Frau zu mir, dass ich sagen muss, was ich will.
+Ich hätte Ihr mein Wesen offen legen können und ich habe dies bestimmt in Ansätzen auch versucht.
+Was ich will und was ich brauche bzw. was ein Mensch will und braucht habe ich mich mein ganzes Leben (LINK: Leben) gefragt.
+Dass es sich dabei um Freiheit (und andere vergessen gegangene Rechte) (LINK: ), Entwicklung (LINK: Progress) und das Schreiben als Arbeit (LINK: Arbeit) dreht, war klar.
+Allerdings bin ich zum Schluss gekommen, dass ich mein Glück an die Wand malen muss um dem Anspruch solch einer Frage gerecht zu werden.
+
+Durch die Gründung der Fixt GmbH (LINK: Statuten) mit Vikas Mohan im Jahr 2019 haben wir uns ebenfalls der Frage gewidmet, wie man lebt und arbeitet.
+Unsere Partner
+
+Studium auch darauf ausgelegt
+
+Keine eigene Ideen
 
 Weitere Bemerkungen:
 - Nicht beherrschen um sie
